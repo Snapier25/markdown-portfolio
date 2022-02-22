@@ -1,1 +1,1 @@
-[LinkedIn profile] (https://www.linkedin.com/in/sharrynnapier)
+[LinkedIn profile] (https://www.linkedin.com/in/sharrynnapier/)
